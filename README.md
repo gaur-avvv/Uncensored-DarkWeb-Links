@@ -1,9 +1,7 @@
 # Uncensored-DarkWeb-Links
 Here you will find some unknown and uncensored dark deep web link please be caution!
 
-# Dark Web Links
-
-## Disclaimer
+> [!WARNING]
 **THESE LINKS ARE UNCENSORED AND UNCHECKED. PLEASE USE UTMOST CAUTION WITH THESE SITES, AS THE MAJORITY MAY BE SCAMS OR MALICIOUS. USE AT YOUR OWN RISK.**
 
 ## Table of Contents
